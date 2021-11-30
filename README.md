@@ -5,4 +5,5 @@
 - no
 - transfem
 - coding socks
+- jk totally cis tho
 - etc
